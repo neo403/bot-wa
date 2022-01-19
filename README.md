@@ -37,6 +37,6 @@
 --------------
 
 ### Thanks To 
-[`@NAUFAL`](wa.me/6285157160906)
-[`@AKMAL`](wa.me/6281212083401)
-[`@Jaexploit`](wa.me/6289505478068)
+[`@NAUFAL`](https://wa.me/6285157160906)
+[`@AKMAL`](https://wa.me/6281212083401)
+[`@Jaexploit`](https://wa.me/6289505478069)
